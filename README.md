@@ -9,3 +9,4 @@ I play, Valorant, Minecraft, PUBG: Battlegrounds, Battlefeild V, & very rarely H
 
 I also do 3D Printing. If your interested you can visit my business link at https://precision3-d.com/
 
+
