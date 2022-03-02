@@ -10,6 +10,6 @@ I play, Valorant, Minecraft, PUBG: Battlegrounds, Battlefeild V, & very rarely H
 I also do 3D Printing. If your interested you can visit my business link at https://precision3-d.com/
 
 
-You can visit my friend's website here:
+You can visit my friend page on my website here:
 https://maybeimspiderman.github.io/website-maybeimspiderman/Aladdin
 
